@@ -1,2 +1,2 @@
-git is flunec
+dddddgit is flunec
 i don,t konw
